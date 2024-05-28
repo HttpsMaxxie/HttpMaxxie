@@ -8,8 +8,6 @@ Meu nome é Victor
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+victor.hpc.81@gmail.com
 
-@marcelopaludetto
-
-![descrição do GIF](link GIF do Tenor)
+@httpsmaxxie
